@@ -1,1 +1,0 @@
-# 2440102695_AdeNisaNurmalasari
